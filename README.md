@@ -1,0 +1,1 @@
+# Management_of_customer_card_records_in_a_supermarket
